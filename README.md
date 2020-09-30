@@ -1,5 +1,10 @@
+################################To Become a Hacker think like a hacker####################################
+
+You can grab almost every account by just using this tool.
+!paid tool for free!
+
 # Social-Media-Tool-V.1
-Best Social Media Account phishing Web page.
+Best Social Media Account phishing Web pages.
 
 ## This Tool Supported :
 <ul>
@@ -14,7 +19,7 @@ Best Social Media Account phishing Web page.
 
 **〓〓〓 Follow on Webside 〓〓〓**
 
-➽ https://officialevildevil.blogspot.com
+➽http://officialevildevil.epizy.com
 
 **〓〓〓 Email Offical EvilDevil 〓〓〓**
 
